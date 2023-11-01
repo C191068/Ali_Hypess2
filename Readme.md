@@ -22,5 +22,21 @@
 ![Screenshot_20231031_213105_Discord](https://github.com/C191068/Ali_Hypess2/assets/89090776/9a7e8ba6-4c22-4a35-9e38-4e6665af2337)
 ![Screenshot_20231031_213214_Discord](https://github.com/C191068/Ali_Hypess2/assets/89090776/139bbd56-1344-4e30-8e44-1dc032450858)
 ![Screenshot_20231031_213410_Discord](https://github.com/C191068/Ali_Hypess2/assets/89090776/dff073a9-d26e-406a-aa2c-f37c8d5bf808)
+![Screenshot_20231031_213450_Discord](https://github.com/C191068/Ali_Hypess2/assets/89090776/3d1e06d0-d950-4b08-8d51-3c576290ceb4)
+![Screenshot_20231031_213536_Discord](https://github.com/C191068/Ali_Hypess2/assets/89090776/720bbeb3-520f-48a1-a092-f39baf7a73fe)
+![Screenshot_20231031_213552_Discord](https://github.com/C191068/Ali_Hypess2/assets/89090776/6649b507-9d5d-4a88-94e0-917354328d2a)
+![Screenshot_20231031_213838_Discord](https://github.com/C191068/Ali_Hypess2/assets/89090776/34e28ecc-20d0-4c6e-8ab7-9598106985dc)
+![Screenshot_20231031_213846_Discord](https://github.com/C191068/Ali_Hypess2/assets/89090776/cb61cc57-8d41-433f-9a62-905784535067)
+![Screenshot_20231031_213930_Discord](https://github.com/C191068/Ali_Hypess2/assets/89090776/2a6d8f25-ee6d-436b-8433-866d4d351198)
+![Screenshot_20231031_213937_Discord](https://github.com/C191068/Ali_Hypess2/assets/89090776/088cfa6e-d70a-42a0-8515-f71e9967c93b)
+![Screenshot_20231031_214032_Discord](https://github.com/C191068/Ali_Hypess2/assets/89090776/a661491d-c6c0-4197-996e-5123ad13867b)
+![Screenshot_20231031_214222_Discord](https://github.com/C191068/Ali_Hypess2/assets/89090776/94343cd5-376d-4b05-a246-2d4ffa46aad2)
+![Screenshot_20231031_214314_Discord](https://github.com/C191068/Ali_Hypess2/assets/89090776/07245b46-aaf6-43fe-878a-742595f495ff)
+![Screenshot_20231031_214321_Discord](https://github.com/C191068/Ali_Hypess2/assets/89090776/040b81c4-1c03-47ea-9e59-ce323f0680c4)
+![Screenshot_20231031_214348_Discord](https://github.com/C191068/Ali_Hypess2/assets/89090776/8df5dead-78f3-4f4a-8d58-501bdffe75b8)
+![Screenshot_20231031_214355_Discord](https://github.com/C191068/Ali_Hypess2/assets/89090776/af4a25dc-c3bd-4a37-b2e8-ededab8702f3)
+![Screenshot_20231031_214456_Discord](https://github.com/C191068/Ali_Hypess2/assets/89090776/9e694ca3-5ff4-4d9d-b8c3-5436d217d15b)
+![Screenshot_20231031_214553_Discord](https://github.com/C191068/Ali_Hypess2/assets/89090776/2ff8e9e4-3b46-4d52-8e03-85690c514a54)
+
 
 
